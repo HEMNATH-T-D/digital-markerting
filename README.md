@@ -1,2 +1,25 @@
-# digital-markerting
-Keyboard research using Google keyword planner
+Naan Mudulvan Team id:
+NM2023TMID04082
+
+Team Members
+
+15437493ED47440955E49505AB77E794
+GNANAVEL J P
+
+5E8F75320BC4734A3A24AF508029A51F
+HEMNATH T D
+
+14C90170DE9985984474C2D4518ACDF5
+JANAKIRAMAN S
+
+72C3C6947738047B6FC424604649637F
+AMUDESH H
+
+Facebook Page URL-
+https://www.facebook.com/profile.php?id=61550619808768&mibextid=ZbWKwL
+
+Social Media Advertisement posters-
+attached here as png format
+
+Demo Video Link-
+https://youtu.be/p7XcKY3qN44?si=JxFDDJBsgQMH8qGo
